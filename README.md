@@ -1,0 +1,1 @@
+# GeziGo-privacy-policy
